@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @drewcobble11
 - 👀 I’m interested in sports, video games, and sneakers
-- 🌱 I’m currently learning Mathematics and Statistics at Northern Kentucky University
+- 🌱 Just graduated with a degree in Mathematics and Statistics from Northern Kentucky University
 - 💞️ I’m looking to collaborate on sports projects, with some people who I can learn from.
 - 📫 email me at drewcobble11@gmail.com !
 - 😄 Pronouns: he/him
