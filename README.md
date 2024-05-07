@@ -5,6 +5,7 @@
 - 📫 email me at drewcobble11@gmail.com !
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a professional disc golfer (PDGA#182203)
+- Portfolio a work in progress!!
 
 <!---
 drewcobble11/drewcobble11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
